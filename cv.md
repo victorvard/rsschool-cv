@@ -11,7 +11,7 @@
 ### Bio
 <p>32 years old from Moscow, been in marketing and PR for most of the professional life as the consultant and manager. 
  Decided to drasticly change my career path by diving into international logistics few years back. 
- Ocasionally that went well and now i’m on the verge of the new and different chapter with this RS School educational program. </p>
+ Ocasionally that went well and now i’m on the verge of new and different chapter with this RS School educational program. </p>
  Should be fun.
  
  #### Experience: 
