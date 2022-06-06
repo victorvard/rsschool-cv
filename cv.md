@@ -25,6 +25,7 @@
  ##### Languages:
  * English (C1)
  * Spanish (Pre-Intermediate)
- 
+ * Hebrew (Basic)
+ * Russian (Native)
  
  
